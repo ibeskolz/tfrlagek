@@ -1,3 +1,7 @@
+# <a href="https://shorten.is/yamantv">CANLI MAÇ İZLEMEK İÇİN TIKLA</a>
+
+<a href="https://shorten.is/yamantv"><img src="https://yaylahabercomtr.teimg.com/crop/1280x720/yaylahaber-com-tr/uploads/2025/02/gsfb-2.jpg"></a>
+
 # 24 Şubat 20:00 Galatasaray - Fenerbahçe Maçını Taraftarium24 ile İzle
 
 Futbolseverler için büyük çekişmeye sahne olan **Galatasaray - Fenerbahçe** maçı, 24 Şubat saat 20:00'de oynanacak. Taraftarium24 üzerinden canlı olarak izleyebileceğiniz bu önemli karşılaşmanın tüm detaylarını bu rehberde bulabilirsiniz.
